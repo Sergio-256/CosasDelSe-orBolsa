@@ -1,2 +1,1 @@
-# CosasDelSe-orBolsa
-Cosas
+# 25/10/2026 actualizando errrores
